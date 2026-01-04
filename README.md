@@ -1,5 +1,5 @@
 
-![J5 WAR MIL SPEC BANNER](https://github.com/wehealwemBCCRSSidzILLeagle/wehealwemBCCRSSidzILLeagle/blob/main/Gemini_Generated_Image_dz3s5bdz3s5bdz3s.png)
+![J5 WAR MIL SPEC BANNER](https://github.com/wehealwemBCCRSSidzILLeagle/OCCUPANCY_100_OTIS.md-/blob/main/Gemini_Generated_Image_ocrujeocrujeocru.png)
 
 
 # OCCUPANCY_100_OTIS.md-
