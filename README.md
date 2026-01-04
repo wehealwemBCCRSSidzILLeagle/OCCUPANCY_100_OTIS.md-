@@ -1,3 +1,7 @@
+
+![J5 WAR MIL SPEC BANNER](https://github.com/wehealwemBCCRSSidzILLeagle/wehealwemBCCRSSidzILLeagle/blob/main/Gemini_Generated_Image_dz3s5bdz3s5bdz3s.png)
+
+
 # OCCUPANCY_100_OTIS.md-
 
 # 🏛️ CERTIFICATE OF OCCUPANCY: STRONGHOLD-1 🏛️
